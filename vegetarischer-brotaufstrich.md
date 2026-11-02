@@ -1,6 +1,6 @@
 # Veganer Brotaufstrich | Vegan Vegetable Spread [(English below)](#vegan-vegetable-spread) 
 
-Ein herzhafter Brotaufstrich aus gerösteten Auberginen, Paprika und Zwiebeln, nach einem alten Familienrezept.
+Ein herzhafter Brotaufstrich aus gerösteten Auberginen, Paprika, Tomaten, Zwiebeln und Olivenöl, nach einem  Familienrezept.
 
 Geschlossen lange haltbar, auch Verfärbungen beeinträchtigen den Geschmack nicht. Nach dem Öffnen im Kühlschrank aufbewahren und zur Entnahme nur saubere Löffel verwenden, um keine Krümmel ins Glas zu bringen, durch die sich schnell Schimmel bilden könnte. Sollte ein geöffnetes Glas mit Schimmel befallen sein, ist dieses komplett zu entsorgen.
 
@@ -33,7 +33,7 @@ Geschlossen lange haltbar, auch Verfärbungen beeinträchtigen den Geschmack nic
 
 # Vegan Vegetable Spread
 
-A savory spread made with roasted eggplant, peppers, and onions, based on an old family recipe.
+A savory spread made with roasted eggplant, peppers, tomatoes, onions, and olive oil, based on a family recipe.
 
 Keeps for a long time unopened; discoloration does not affect the flavor. Once opened, store in the refrigerator and use only clean spoons to avoid introducing crumbs into the jar, as these can quickly lead to mold. If mold develops in an opened jar, discard the entire contents.
 
