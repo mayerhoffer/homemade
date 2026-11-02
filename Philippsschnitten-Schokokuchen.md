@@ -1,4 +1,4 @@
-# Oma-Kuchen/Philippsschnitten | Chocolate Hazelnut Sheet Cake/Philippsschnitten (Grandma's recipe) [(English below)](#Philippsschnitten)
+# Oma-Kuchen/Philippsschnitten | Chocolate Hazelnut Sheet Cake (Grandma's recipe) [(English below)](#chocolate-hazelnut-sheet-cake-grandmas-recipe)
 
 Ein altes Familienrezept für einen lockeren und feinen Blechkuchen aus Eierschaum, gemahlenen Haselnüssen oder Mandeln und Kakao, der nach dem Backen mit einer Kaffee-Schokoladen-Glasur überzogen wird.
 
