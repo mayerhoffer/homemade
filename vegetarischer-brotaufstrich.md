@@ -1,8 +1,8 @@
 # Veganer Brotaufstrich | Vegan Vegetable Spread [(English below)](#vegan-vegetable-spread) 
 
-Ein herzhafter Brotaufstrich aus gerösteten Auberginen, Paprika, Tomaten, Zwiebeln und Olivenöl, nach einem  Familienrezept.
+Ein herzhafter Brotaufstrich aus gerösteten Auberginen, Paprika, Tomaten, Zwiebeln und Olivenöl, nach einem Familienrezept.
 
-Geschlossen lange haltbar, auch Verfärbungen beeinträchtigen den Geschmack nicht. Nach dem Öffnen im Kühlschrank aufbewahren und zur Entnahme nur saubere Löffel verwenden, um keine Krümmel ins Glas zu bringen, durch die sich schnell Schimmel bilden könnte. Sollte ein geöffnetes Glas mit Schimmel befallen sein, ist dieses komplett zu entsorgen.
+Geschlossen lange haltbar, auch Verfärbungen beeinträchtigen den Geschmack nicht. Nach dem Öffnen im Kühlschrank aufbewahren und zur Entnahme nur saubere Löffel verwenden, um keine Krümel ins Glas zu bringen, durch die sich schnell Schimmel bilden könnte. Sollte ein geöffnetes Glas mit Schimmel befallen sein, ist dieses komplett zu entsorgen.
 
 ## Rezept
 
@@ -27,7 +27,7 @@ Geschlossen lange haltbar, auch Verfärbungen beeinträchtigen den Geschmack nic
 4. **Auberginen hinzufügen.** Die weichen Auberginen pellen, klein hacken und mitsamt den Kernen hinzufügen.
 5. **Langsam einkochen.** Die passierten Tomaten, Lorbeerblätter, Salz, Pfeffer und nach Belieben etwas Chili hinzufügen. Unter gelegentlichem Rühren **mindestens 1 Stunde bei niedriger Hitze** garen.
 6. **Konsistenz prüfen.** Die Flüssigkeit weitgehend verdampfen lassen, bis ein sämiger, streichfähiger Brotaufstrich entsteht.
-7. **Abfüllen.** Den fertigen Brotaufstrich **kochend heiß** in gründliche gesäuberte Gläser mit Schraubverschluss füllen und diese **sofort verschließen**. So bleibt der Aufstrich über Jahre hin genießbar. Dunkel lagern, dann behält er auch seine Farbe.
+7. **Abfüllen.** Den fertigen Brotaufstrich **kochend heiß** in gründlich gesäuberte Gläser mit Schraubverschluss füllen und diese **sofort verschließen**. So bleibt der Aufstrich über Jahre hinweg genießbar. Dunkel lagern, dann behält er auch seine Farbe.
 
 ---
 
